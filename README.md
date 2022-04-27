@@ -2,7 +2,7 @@
 
 愿你出走半生,归来仍是少年~
 
-🤔 Blog https://www.b521.ne
+🤔 Blog https://www.b521.net
 
 <!--
 **Freakboy/Freakboy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
